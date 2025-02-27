@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Lyan-014.
-- 👀 I’m interested in . computer programming..
+- 👀 I’m interested in ... learning coding 
 - 🌱 I’m currently learning . computer programming..
 - 💞️ I’m looking to collaborate on ..an easy journey with myself and My teacher.
-- 📫 How to reach me ...in Whatsapp @+254794954132
+- 📫 How to reach me ...in Whatsapp @+254794954132 or email@lyanmaina014@gmail.com
 - 😄 Pronouns: ...A she
-- ⚡ Fun fact: ...Deaf people are known to use sign language in their sleep 
+- ⚡ Fun fact: ...Deaf people are known to use sign language in their sleep 🤩🤩
 
 <!---
 Lyan-014/Lyan-014 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
