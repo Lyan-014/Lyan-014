@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lyan-014
+- 👋 Hi, I’m @Lyan-014.
 - 👀 I’m interested in . computer programming..
 - 🌱 I’m currently learning . computer programming..
 - 💞️ I’m looking to collaborate on ..an easy journey with myself and My teacher.
